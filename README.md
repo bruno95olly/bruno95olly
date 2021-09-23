@@ -1,6 +1,6 @@
 ## Eai familiaa, espero que curtem meu perfil!
 - 💻 Futuro Desenvolvedor Full-Stack
-- 📚 Cursando Desenvolvimento de Sistemas e IoT
+- 📚 Cursando Desenvolvimento de Sistemas e Desenvolvimento Web Fullstack
 - 💭 Buscando aprender e evoluir respeitando os processos da vida...
 
 
