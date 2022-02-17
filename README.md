@@ -1,4 +1,4 @@
-## Salve famíliaa😜!
+## Salve famíliaa 😜!
 - 💻 Futuro Desenvolvedor Full-Stack
 - 📚 Cursando Desenvolvimento de Sistemas e Sistemas para Internet 
 - 💭 aprendendo e evoluindo sempre respeitando os processos da vida...
